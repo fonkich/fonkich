@@ -1,1 +1,1 @@
-!(https://yandex.ru/images/search?cbir_id=2467326%2FDie6HUJgNTazuVv-eoRzSQ4206&family=yes&tmpl_version=releases-frontend-images-v1.1633.0__dd61a4cbcab16dac12c9102f3bb6e3c130a339d5&rpt=imageview&lr=975&url=https%3A%2F%2Favatars.mds.yandex.net%2Fget-images-cbir%2F2467326%2FDie6HUJgNTazuVv-eoRzSQ4206%2Forig&cbir_page=similar)
+!(https://c.tenor.com/_WZy7E7hoTcAAAAd/tenor.gif)
