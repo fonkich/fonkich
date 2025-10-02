@@ -1,1 +1,1 @@
-![Описание GIF](https://github.com/fonkich/fonkich/blob/main/Kotik.gif)
+<div class="tenor-gif-embed" data-postid="16227718874986113461" data-share-method="host" data-aspect-ratio="1.44737" data-width="100%"><a href="https://tenor.com/view/hemry%E2%80%99s-girl-gif-16227718874986113461">Hemry’s Girl GIF</a>from <a href="https://tenor.com/search/hemry%E2%80%99s+girl-gifs">Hemry’s Girl GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
